@@ -1,2 +1,1 @@
-![tuah]([image link here](https://files.catbox.moe/vn5keb.png)) 
-test ..
+![skit](https://files.catbox.moe/vn5keb.png)
