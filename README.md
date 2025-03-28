@@ -5,7 +5,7 @@
 <p align="center">◡◡⠀ as you writhe under me, my angel, show me your wings  .   (ᵕ ᵕ )</p
 </div>
 <div align="center">
-  <img width = "50%" src="https://files.catbox.moe/lau52w.png">
+  <img width = "40%" src="https://files.catbox.moe/lau52w.png">
 </div>
 <p align="center">shitty memory. worrypilled & lovepilled. sukuna & yuji r my favs.</p
 </div>
