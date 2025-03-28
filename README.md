@@ -11,5 +11,6 @@
 </div>
 <p align="center"><strike>✦✦ ask me about my yumeship and i won't shut up ◞　i ♡ yuji .ᐟ </strike></p
 </div>
-<p align="center">i love everyone because im so very loving uhhh idk what else to put hii more soon</p
+<p align="center">i love everyone because im so very loving .... sukugo & tojikuna >>> ur favs</p
 </div>
+
